@@ -1,6 +1,8 @@
 ![github card](https://github-readme-stats.vercel.app/api/pin/?username=LEGEND-AI&repo=BOTSPAM&theme=lite)
 
-[![MEOWBOT LOGO](https://telegra.ph/file/3c2932815330a143fa1a8.png)](https://t.me/Murat_30_God )
+
+<p align="center"><a href="https://t.me/ll_ADHERA_KING_ll"><img src="https://telegra.ph/file/849b9f8f22403fa1e2f17.jpg" width="400"></a></p>
+
 
 
 <h1 align="center">
