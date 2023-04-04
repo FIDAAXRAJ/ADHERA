@@ -1,5 +1,4 @@
 
-#༒︎AADHERA♡︎༒︎
 ![github card](https://github-readme-stats.vercel.app/api/pin/FIDAAXRAJ?usernameADHERA=&repo=&theme=lite)
 
 
