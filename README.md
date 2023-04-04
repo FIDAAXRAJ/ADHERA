@@ -1,9 +1,9 @@
 ![github card](https://github-readme-stats.vercel.app/api/pin/?username=LEGEND-AI&repo=BOTSPAM&theme=lite)
 
-[![LEGENDBOTSPAM](https://graph.org/file/89ed7d3a2bd8aa2c61385.jpg)](https://github.com/LEGEND-AI/BOTSPAM)
+[![LEGENDBOTSPAM](https://graph.org/file/81fb7b11b96760b13b121.jpg](https://github.com/FIDAAXRAJ/ADHERA)
 
 <h1 align="center">
-<b> 『ẞø†Spâm』 </b>
+<b> 𓄂꯭꯭ᬼ꯭꯭𓄻꯭|❛𓆩꯭꯭𝄂🜧꯭꯭𝗔🜧꯭𝗗🜧꯭꯭꯭𝗛🜧꯭꯭𝗘🜧꯭꯭𝗥🜧꯭꯭𝗔🜧꯭𝄂─‌⃛•👅ꭙ𝗗𝆺꯭𝅥༎𓆪🌿─‌⃛‌⃝❤️[ ┃ ┃███████┃ ┃███████┃ ┃█⏤‌•𝐇❍𝐓 𝐁❍𝐈❜✘"𓆩᪵👅💸𓆪‌𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫 </b>
 </h1>
 
 <h6 align="center">
@@ -167,7 +167,7 @@ Required Variable | Description
 </details>
 
 
-> Made with 💕 by [@TeamLegendXD](https://t.me/TeamLegendXD).    
+> Made with 💕 by [@TeamLegendXD](https://ll_ADHERA_KING_ll).    
 
 
 
