@@ -3,7 +3,7 @@
 [![LEGENDBOTSPAM](https://graph.org/file/81fb7b11b96760b13b121.jpg](https://github.com/FIDAAXRAJ/ADHERA)
 
 <h1 align="center">
-<b> 𓄂꯭꯭ᬼ꯭꯭𓄻꯭|❛𓆩꯭꯭𝄂🜧꯭꯭𝗔🜧꯭𝗗🜧꯭꯭꯭𝗛🜧꯭꯭𝗘🜧꯭꯭𝗥🜧꯭꯭𝗔🜧꯭𝄂─‌⃛•👅ꭙ𝗗𝆺꯭𝅥༎𓆪🌿─‌⃛‌⃝❤️[ ┃ ┃███████┃ ┃███████┃ ┃█⏤‌•𝐇❍𝐓 𝐁❍𝐈❜✘"𓆩᪵👅💸𓆪‌𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫𒐫 </b>
+<b> ADHIRA b>
 </h1>
 
 <h6 align="center">
