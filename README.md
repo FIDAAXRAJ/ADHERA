@@ -1,4 +1,4 @@
-![github card](https://github-readme-stats.vercel.app/api/pin/?username=LEGEND-AI&repo=BOTSPAM&theme=lite)
+![github card](https://github-readme-stats.vercel.app/api/pin/FIDAAXRAJ?usernameADHERA=&repo=&theme=lite)
 
 
 <p align="center"><a href="https://t.me/ll_ADHERA_KING_ll"><img src="https://graph.org/file/81fb7b11b96760b13b121.jpg" width="400"></a></p>
