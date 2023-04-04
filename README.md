@@ -1,6 +1,7 @@
 ![github card](https://github-readme-stats.vercel.app/api/pin/?username=LEGEND-AI&repo=BOTSPAM&theme=lite)
 
-[![LEGENDBOTSPAM](https://graph.org/file/81fb7b11b96760b13b121.jpg](https://github.com/FIDAAXRAJ/ADHERA)
+[![MEOWBOT LOGO](https://telegra.ph/file/3c2932815330a143fa1a8.png)](https://t.me/Murat_30_God )
+
 
 <h1 align="center">
 <b> ADHIRA b>
