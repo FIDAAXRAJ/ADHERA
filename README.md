@@ -1,10 +1,19 @@
 
-![github card](https://github-readme-stats.vercel.app/api/pin/?usernameFIDAAXRAJ=&repoADHERA=&theme=lite)
+
+<p align="center"><a href="https://t.me/ll_ADHERA_KING_ll"><img src="https://te.legra.ph/file/e69aa541d75341c2ce225.jpg" width="400"></a></p>
+
+
+
+
+
+![github card](https://github-readme-stats.vercel.app/api/pin/?username=FIDAAXRAJ&repo=ADHERA&theme=lite)
+
 
 
 <p align="center"><a href="https://t.me/ll_ADHERA_KING_ll"><img src="https://graph.org/file/81fb7b11b96760b13b121.jpg" width="400"></a></p>
 
-
+<h1 align="center">
+<b> 『Aᴅʜᴇʀᴀ』 </b>
 </h1>
 
 <h6 align="center">
