@@ -177,7 +177,7 @@ Required Variable | Description
 </details>
 
 
-> Made with 💕 by [@TeamLegendXD](https://ll_ADHERA_KING_ll).    
+> Made with 💕 by [@ll_ADHERA_KING_ll].    
 
 
 
